@@ -1,1 +1,1 @@
-# 3i2024gr2podstGITHUB
+# 3i 2024 gr2 podstGITHUB
